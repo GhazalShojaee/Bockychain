@@ -1,1 +1,1 @@
-#Always win who follows on-trend Technology. 1 git repo
+#Always wins who follows ongoing trend of Technology. 1 git repo
